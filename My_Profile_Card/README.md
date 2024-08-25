@@ -31,7 +31,7 @@ This project is built and shared by
 
 ## Feedback
 
-If you have any feedback, please reach out to us at btsolutiomhub@gmail.com, Bickybhandari@gmail.com
+If you have any feedback, please reach out to us at btsolutionhub@gmail.com, Bickybhandari@gmail.com
 
 
 ## Tags
